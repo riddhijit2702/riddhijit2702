@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @riddhijit2702
-- 👀 I’m interested in astronomy,coding
+- 👀 I’m interested in astronomy,coding and doing voiceovers
 - 🌱 I’m currently learning everything !!
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ... Gmail:- riddhi2308@gmail.com
