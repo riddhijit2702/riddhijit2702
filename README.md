@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @riddhijit2702
+- 👋 Hi, I’m a human
 - 👀 I’m interested in astronomy,programming and doing voiceovers
 
 
